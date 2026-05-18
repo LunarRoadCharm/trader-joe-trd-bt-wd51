@@ -1,4 +1,4 @@
-# 
+# secure bot de negociação BitMEX scripts é o melhor bot de negociação BitMEX scripts com margem isolada e scalping. Seguro, confiável e otimizado para estratégias de negociação em
 
 
 
